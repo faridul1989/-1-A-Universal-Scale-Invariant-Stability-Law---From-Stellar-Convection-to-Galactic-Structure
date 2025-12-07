@@ -1,0 +1,1 @@
+# -1-A-Universal-Scale-Invariant-Stability-Law---From-Stellar-Convection-to-Galactic-Structure
